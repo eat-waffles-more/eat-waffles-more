@@ -7,7 +7,7 @@
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: i love waffles, but pancakes are dangerous!
 
-#### Release date of Waffles
+# Release date of Waffles
 
 Waffles will release september 1st 2025, with over 1000 games WOW!
 
