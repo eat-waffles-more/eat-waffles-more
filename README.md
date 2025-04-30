@@ -39,6 +39,9 @@ In addition to providing unblocked access and optimizing for all devices, Waffle
 
 We also value your time, which is why we’ve minimized loading times and optimized our site for maximum speed. Whether you’re streaming a video or playing a game, we want your experience to be seamless. No one wants to deal with buffering or long waits, and at Waffles, we make sure that’s never a problem.
 
+#### Release date of Waffles
+Waffles will release september 1st 2025, with over 1000 games WOW!
+
 #### The Waffles Community
 
 Finally, one of the things that make Waffles truly special is the sense of community we’ve fostered. While you can enjoy our content solo, we also encourage users to share their favorite finds with friends, classmates, or fellow entertainment lovers. Whether you’re sending a link to a funny video or challenging your friends to a game, the Waffles community is a place for like-minded individuals to connect and share the things they love.
