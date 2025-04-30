@@ -9,6 +9,6 @@
 
 # Our Mission
 
-Here at Waffles, we strive to keep you entertained, wether that means at school or home. We have many domains so there will always be an unblocked one
+Here at Waffles, we strive to keep you entertained, wether that means at school or home. We have many domains so there will always be an unblocked link for you to use. We also optomize our site to be functional on any device, or under any crcumstances.
 
 
