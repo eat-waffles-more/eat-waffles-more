@@ -7,7 +7,7 @@
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: idk
 
-#Our Mission
+# Our Mission
 
 Here at Waffles, we strive to keep you entertained, wether that means at school or home. We have many domains so there will always be an unblocked one
 
