@@ -7,6 +7,10 @@
 - 😄 Pronouns: he, him
 - ⚡ Fun fact: i love waffles, but pancakes are dangerous!
 
+#### Release date of Waffles
+
+Waffles will release september 1st 2025, with over 1000 games WOW!
+
 # Our Mission
 
 here at Waffles, our mission is simple: we want to keep you entertained, whether you’re in the classroom, at home, or anywhere else. In today’s digital age, where entertainment and learning are often just a few clicks away, it’s crucial to have access to fun and engaging content regardless of the environment you're in. We understand how frustrating it can be when websites are blocked, or you can’t access your favorite games, videos, or entertainment due to restrictions in place at school or work. That’s why we’ve made it our priority to offer you a variety of domains, ensuring that no matter where you are, you’ll always have an unblocked link to enjoy.
@@ -38,9 +42,6 @@ But entertainment isn’t just about relaxing and having fun; it can also be a w
 In addition to providing unblocked access and optimizing for all devices, Waffles is dedicated to making sure that your time on our site is stress-free and enjoyable. We understand that life can be busy, and sometimes you just need a quick break from the everyday hustle and bustle. That’s why we’ve worked hard to eliminate any unnecessary distractions on our platform. When you visit Waffles, you’ll find an easy-to-navigate layout that makes finding your favorite games, videos, and content quick and simple.
 
 We also value your time, which is why we’ve minimized loading times and optimized our site for maximum speed. Whether you’re streaming a video or playing a game, we want your experience to be seamless. No one wants to deal with buffering or long waits, and at Waffles, we make sure that’s never a problem.
-
-#### Release date of Waffles
-Waffles will release september 1st 2025, with over 1000 games WOW!
 
 #### The Waffles Community
 
