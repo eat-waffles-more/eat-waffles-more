@@ -9,7 +9,7 @@
 
 # Release date of Waffles
 
-Waffles will release september 1st 2025, with over 1000 games WOW!
+Waffles will release september 1st 2025, with over 300 games WOW!
 
 # Our Mission
 
