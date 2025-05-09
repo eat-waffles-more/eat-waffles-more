@@ -1,4 +1,3 @@
-# #burncarrots
 - 👋 Hi, I’m @eat-waffles-more or, WAFFLES
 - 👀 I’m interested in coding websites that provide the best games for school
 - 🌱 I’m currently learning Node.js
