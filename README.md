@@ -8,7 +8,7 @@
 
 # Release date of Waffles
 
-Go to www.skibidirizzler.global.ssl.fastly.net
+Go to https://skibidirizzler.global.ssl.fastly.net
 
 # Our Mission
 
